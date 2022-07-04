@@ -1,0 +1,2 @@
+# kentod
+Untuk kentod adekmu
